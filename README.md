@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil! ✨💚💚✨
+BEM VINDOS AO MEU PERFIL! ✨💚💚✨
 
 Meu nome é Anna Lívia
 
@@ -12,7 +12,7 @@ Meu nome é Anna Lívia
 
 •Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Você pode entrar em contato comigo! ✉️✉️
+VOCÊ PODE ENTRAR EM CONTATO COMIGO! ✉️✉️
 
 email pessoal: anna.livi457@gmail.com
 
