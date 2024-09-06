@@ -1,6 +1,6 @@
-BEM VINDOS AO MEU PERFIL! ✨💚💚✨
+###BEM VINDOS AO MEU PERFIL! ✨💚💚✨
 
-Meu nome é Anna Lívia
+###Meu nome é **Anna Lívia**
 
 •Gosto de matemática, de ler e desenhar
 
