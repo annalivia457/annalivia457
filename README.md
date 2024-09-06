@@ -1,6 +1,6 @@
-###BEM VINDOS AO MEU PERFIL! ✨💚💚✨
+**BEM VINDOS AO MEU PERFIL**!✨💚💚✨
 
-###Meu nome é **Anna Lívia**
+Meu nome é **Anna Lívia**
 
 •Gosto de matemática, de ler e desenhar
 
@@ -12,7 +12,7 @@
 
 •Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-VOCÊ PODE ENTRAR EM CONTATO COMIGO! ✉️✉️
+**VOCÊ PODE ENTRAR EM CONTATO COMIGO**! ✉️✉️
 
 email pessoal: anna.livi457@gmail.com
 
